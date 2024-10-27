@@ -1,1 +1,1 @@
-"Долгарев Дмитрий" 
+"Dolgarev Dmitriy" 
